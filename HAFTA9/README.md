@@ -1,2 +1,2 @@
 # Credits: Berat LEKİN
-- Teşekkürler
+ Teşekkürler
